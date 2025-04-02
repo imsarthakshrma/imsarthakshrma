@@ -1,3 +1,3 @@
-# WAKEUP CODE EAT PUSH SLEEP REPEAT!
+# Imgonnamakeanameformyself
 
-![hippo](https://media.giphy.com/media/PncQ5smH1YMkmXCVIJ/giphy.gif?cid=ecf05e47eengv94zxs5ni6pt4fr1merqszahjbxzzc1nbpel&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+![hippo](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzB5eWtoYmxjM3dxOHU0NnY5bTBpNjQ0cXBtcGR2bTVlYTQ1enZ3ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/12mRllHWXpt4M8/giphy.gif)
